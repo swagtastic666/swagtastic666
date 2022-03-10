@@ -1,7 +1,7 @@
 # What is up, button pusher!?
 swagtastic（スワグタステク)
 WHN’s Rapping Reaper!なぜハローネーションなのか☆
-#swaglive #swagillust #swaP 
+- #swaglive #swagillust #swaP 
 ✿Reaping: HIATUS 
 
-// THIS IS MY OFFICIAL GITHUB
+THIS IS MY [OFFICIAL GITHUB](https://github.com/swagtastic666)
